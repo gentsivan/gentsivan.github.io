@@ -1,0 +1,2 @@
+# gentsivan.github.io
+Трейдер 
